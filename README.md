@@ -14,7 +14,8 @@ Evie+Oak
 
  
 <a href="https://evieandoak.com/">children’s clothes College Station</a>
-https://www.google.com/maps/place/Evie%2BOak/@30.559206,-96.2661109,17z/data=!3m1!4b1!4m6!3m5!1s0x86469bad205ffb67:0x4a7cdd1c5a3a3791!8m2!3d30.559206!4d-96.263536!16s%2Fg%2F11vm5txfrs?entry=ttu&g_ep=EgoyMDI1MDEyOS4xIKXMDSoJLDEwMjExMjMzSAFQAw%3D%3D
+
+Google Map: https://www.google.com/maps/place/Evie%2BOak/@30.559206,-96.2661109,17z/data=!3m1!4b1!4m6!3m5!1s0x86469bad205ffb67:0x4a7cdd1c5a3a3791!8m2!3d30.559206!4d-96.263536!16s%2Fg%2F11vm5txfrs?entry=ttu&g_ep=EgoyMDI1MDEyOS4xIKXMDSoJLDEwMjExMjMzSAFQAw%3D%3D
 
 Tips for Shopping Children's Clothing in College Station
 
